@@ -7,7 +7,7 @@
 - 💞️ **I’m looking to collaborate on:** Open-source projects in mobile app development, educational tools for computer science learners, and innovative projects that focus on improving accessibility.
 
 - 📫 **How to reach me:**
-  - Email: [lumbud@carleton.edu](mailto:lumbud@carleton.edu)
+  - Email: [lumbud@carleton.edu](mailto:daniellumbus@gmail.com)
   - LinkedIn: [Daniel Lumbu](https://www.linkedin.com/in/daniel-lumbu/)
 
 - 😄 **Pronouns:** He/Him
