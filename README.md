@@ -8,7 +8,7 @@
 
 - 📫 **How to reach me:**
   - Email: [daniellumbus@gmail.com](mailto:daniellumbus@gmail.com)
-  - LinkedIn: [Daniel Lumbu]([https://www.linkedin.com/in/daniel-lumbu/](https://www.linkedin.com/in/daniel-lumbu-939308219/))
+  - LinkedIn: [Daniel Lumbu]([https://www.linkedin.com/in/daniel-lumbu-939308219/])
 
 - 😄 **Pronouns:** He/Him
 
